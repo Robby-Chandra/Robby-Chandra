@@ -7,7 +7,7 @@
 
 👯 I’m looking to collaborate on anything I can learn
 
-📫 How to reach me sebastian.dion02@gmail.com
+📫 How to reach me rochan.130904@gmail.com
 
 
 
