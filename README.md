@@ -1,5 +1,5 @@
 <h1 align="center">Hello, I'm Robby</h1>
-<h3 align="center">Skena</h3>
+<h3 align="center">Cihuy</h3>
 
 🔭 I’m currently working on my school projects/homework
 
